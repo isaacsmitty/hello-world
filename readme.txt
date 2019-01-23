@@ -1,3 +1,3 @@
 this is me speaking to you.
-don't look away...
+can you hear me?
 
